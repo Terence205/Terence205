@@ -1,4 +1,4 @@
-Terence here, im interested to see how data shapes the future!
+Terence here, im interested build a world driven by data, so much data everywhere!
 
 - 📫 How to reach me: tcjy2005@gmail.com
 
